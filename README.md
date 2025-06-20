@@ -1,1 +1,3 @@
-# .github
+# *God Is Good – Always and Forever*
+## *Discover 15 awe-inspiring, little-known facts that reveal how truly good God is. These divine truths will uplift your spirit and transform your faith. Hold onto this truth today. Not just when life is easy—but especially when it’s hard. Even when unseen, God’s goodness surrounds you. Trust, believe, and be uplifted.* [More details….](https://spiritualkhazaana.com/web-stories/god-is-good-always-and-forever/) 
+## #Godisgood #InspirationalBibleverses #Spiritualmotivation #Faithquotes #God’sgoodness #Encouragingmessages #Christianinspiration #Dailydevotional #Hopeandfaith
